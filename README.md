@@ -216,4 +216,4 @@ PUBG Mobile is available as a full free version, with all features and updates i
 Don't miss out on the exhilarating action of PUBG Mobile. **Download it now and join the battle today!**
 
 ---
-**Last updated:** 2026-10-24 14:17:53 UTC
+**Last updated:** 2026-10-24 17:54:33 UTC
